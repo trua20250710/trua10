@@ -10,4 +10,4 @@
 
 这些平台汇集了丰富的欧美一级特黄AA大片资源，内容丰富，更新及时，分类详细，方便用户快速查找。每个视频页面包含详细的影片信息，如时长、主演和清晰度等，支持高清播放，并根据网络状况自动优化画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/trua20250710/trua10 ）</span>
